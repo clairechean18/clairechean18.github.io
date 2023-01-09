@@ -1,2 +1,2 @@
-# clairechean18.github.oi
+# clairechean18.github.io
 Claire Chean's Personal Website
